@@ -1,2 +1,0 @@
-# agil-hafizh
-designer grafis
